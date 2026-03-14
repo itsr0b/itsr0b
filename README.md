@@ -47,9 +47,11 @@ Now I build AI infrastructure at [FΔFΌ★LΔB](https://fafolab.ai). Different 
 
 ## Also, I Make Music
 
-I've always been a writer — usually with more to say than people want to listen to. Got divorced. Turned those words and thoughts into songs. Can't sing worth a shit, but AI handles that anyway. Trust me, you'd be thankful it does.
+I've always been a writer and a talker — usually with more to say than people want to read or listen to. Got divorced. Turned those words and thoughts into songs. Can't sing worth a shit, but AI handles that anyway. Trust me, you'd be thankful it does.
 
-Two albums out under **SHEDAMAGEDME** (both 2024). A third is coming eventually. #1 hit: *She Fucking Hates Me*.
+Two albums out under **SHEDAMAGEDME** (both 2024). 
+A third is coming eventually. 
+#1 hit: *She Fucking Hates Me*.
 
 <p>
   <img src="https://i.scdn.co/image/ab67616d00001e022381961ca6a39f7732f71c7b" width="150" alt="Hammerin' Through Heartache" title="Hammerin' Through Heartache" />
